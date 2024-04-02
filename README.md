@@ -4,8 +4,6 @@
 
 💻 | I also have experience with Bachata and Yoga and like to involve myself in the related IT projects.
 
-🚀 | Get in touch with me via twitter https://twitter.com/iman_ch86
-
 🌟 | Thanks for visiting, I look forward to working together!
 
 
